@@ -1,1 +1,1 @@
-# Newbiecam.github.io
+SAY THX FOR THE WEBSITE
